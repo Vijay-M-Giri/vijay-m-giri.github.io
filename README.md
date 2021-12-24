@@ -1,2 +1,1 @@
-# vijay-m-giri.github.io
-Personal website
+# Vijay M. Giri
